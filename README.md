@@ -15,5 +15,3 @@ Vazio... Roxo 🟣🟣🟣🟣
 
 <img src="https://media1.tenor.com/m/uxzlDwND2RkAAAAd/roxo-hollow-purple.gif" alt="Roxo Hollow Purple GIF"/>
 
-<img src="https://external-preview.redd.it/hRO_fW0xzpIWUaSBKQt0hKZDH7CMqWsvwNs-I43t_KM.gif?auto=webp&amp;s=4e8318561a5d6882cefb271bee0fb2ef6cd7bead" alt="CDN media"/>![image](https://github.com/user-attachments/assets/9eeec404-d110-47cc-9468-53a076f4c68a)
-
