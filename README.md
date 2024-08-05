@@ -13,5 +13,4 @@ Vazio... Roxo 🟣🟣🟣🟣
 
 ごめんなさい、アマナイさん。 私は今、あなたのことを怒っていません。 私は誰に対しても恨みを持っていません。 ただ、今の世界はとても素晴らしいと感じています。 天も地も、私だけが光栄です 🫸🔴🔵🫷🫴🟣
 
-<img src="https://media.tenor.com/eVcQy8728pcAAAAM/room.gif" alt="Aaaaa Vazio Roxo Pa San GIF - Aaaaa vazio roxo Pa san ..."/>![image](https://github.com/user-attachments/assets/819f645e-634d-4773-af90-3971ddd268ed)
-
+https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Faaaaa-vazio-roxo-pa-san-gif-2782172413161853187&psig=AOvVaw1L37Qd71ruh1i5PZ516bxB&ust=1722951264532000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCNiTjOL73YcDFQAAAAAdAAAAABAR
